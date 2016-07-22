@@ -1,3 +1,3 @@
 # Team-D.A.B.
 
-Author: Brenda 
+Author: Angelica and Brenda
