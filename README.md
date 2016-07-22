@@ -1,3 +1,3 @@
 # Team-D.A.B.
 
-Author: Daniel and Angelica
+Author: Daniel, Angelica, and Brenda
